@@ -1,4 +1,4 @@
-**KodeKloud Coupon Code: Save Up to 65% Now**
+**KodeKloud Coupon Code 2025 – Save Up to 65% Now**
 =============================================
 
 KodeKloud is a leading online learning platform specializing in **DevOps**, **Kubernetes**, and **cloud technologies**. With a focus on hands-on labs and real-world scenarios, KodeKloud offers an immersive learning experience for IT professionals and enthusiasts.
@@ -32,13 +32,21 @@ Here are the active KodeKloud Coupon Code:
 Here are the steps you need to follow to claim the KodeKloud discount:
 
 1.  **Visit KodeKloud.com**Navigate to the official KodeKloud website.
-    
+
+![KodeKloud Homepage](https://github.com/KodeKloud-Coupon-Code/.github/blob/main/profile/Img/Homepage.png)
+
 2.  **Select a Plan**Choose the subscription plan that best fits your learning goals.
-    
+
+![KodeKloud Pricing Plans](https://github.com/KodeKloud-Coupon-Code/.github/blob/main/profile/Img/Pricing%20Plan.png)
+
 3.  **Enter Promo Code**During the checkout process, enter the appropriate promo code from the list above.
-    
+
+![KodeKloud Coupon Code](https://github.com/KodeKloud-Coupon-Code/.github/blob/main/profile/Img/KodeKloud%20Coupon%20Code.png)
+
 4.  **Finalize Purchase**Complete your payment to gain immediate access to KodeKloud’s extensive course library.
-    
+
+![KodeKloud Payment](https://github.com/KodeKloud-Coupon-Code/.github/blob/main/profile/Img/Finalized%20Purchase.png)
+
 
 **Key Features of KodeKloud**
 -----------------------------
